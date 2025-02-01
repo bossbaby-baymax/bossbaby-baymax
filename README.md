@@ -63,9 +63,8 @@ Together, we’ll build a winning strategy to break into these roles and create 
 
 Let’s connect and discuss this exciting opportunity in detail! Together, we’ll unlock high-paying roles and create a reliable partnership.  
 
-- **Gmail**: voidjay92 
-- **Discord**: raza.1004ali
-- **Telegram**: @raza1004ali
+- **Gmail**: voidjay92@gmail.com
+- **Telegram**: Joymiracle929
 
 ---
 
