@@ -8,7 +8,7 @@
 
 ---  
 
-# *I never give up.s
+# *I never give up.
 
 <!---
 bossbaby-baymax/bossbaby-baymax is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
